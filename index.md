@@ -1,4 +1,4 @@
-## [🕷.🕸3/](http://xn--hy8h.xn--3-qn3s.hns.to/) | an emoji Handshake top level domain
+## [🕷.🕸3/](http://xn--hy8h.xn--3-qn3s.hns.to/) | an emoji Handshake blockchain top level domain
 
 
 
